@@ -81,7 +81,7 @@ My work focuses on:
 
 I am open to opportunities as a Business Analyst, Product Owner, or Functional Consultant where I can leverage my analysis, modeling, and project delivery expertise.
 
-* **Candidate Name:** Debal Amitabh Adhikari
+* **Candidate Name:** Debal Adhikari
 * **LinkedIn:** [linkedin.com/in/debal-adhikari](https://www.linkedin.com/in/debal-adhikari)
 * **Location:** Bengaluru, Karnataka, India
 
